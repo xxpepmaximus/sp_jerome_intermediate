@@ -1,4 +1,4 @@
-<a href="https://postimg.cc/gXNXCnMV" target="_blank"><img src="https://i.postimg.cc/HnCw7MXh/SP-JEROME-INTERMEDIATE-01.png" alt="SP-JEROME-INTERMEDIATE-01"/></a><br/><br/>
+<a><img src="https://i.postimg.cc/HnCw7MXh/SP-JEROME-INTERMEDIATE-01.png" alt="SP-JEROME-INTERMEDIATE-01"/></a><br/><br/>
 <a href="https://postimg.cc/zHvb88M9" target="_blank"><img src="https://i.postimg.cc/FzgjbKxs/SP-JEROME-INTERMEDIATE-02.png" alt="SP-JEROME-INTERMEDIATE-02"/></a><br/><br/>
 <a href="https://postimg.cc/rdTDzS3G" target="_blank"><img src="https://i.postimg.cc/jjwPgch1/SP-JEROME-INTERMEDIATE-03.png" alt="SP-JEROME-INTERMEDIATE-03"/></a><br/><br/>
 <a href="https://postimg.cc/WtYqSqqj" target="_blank"><img src="https://i.postimg.cc/TYfjdrRy/SP-JEROME-INTERMEDIATE-04.png" alt="SP-JEROME-INTERMEDIATE-04"/></a><br/><br/>
